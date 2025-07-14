@@ -1,4 +1,4 @@
-# 🔥 Aragon AI Discount Code: 'ARAGONPROMO' – Save 65% Now!
+# Aragon AI Discount Code: 'ARAGONPROMO' – Save 65% Now!
 
 [**👉 Click here to access the deal**](https://www.aragon.ai/pricing?via=gthb)  
 (Main promo code: `ARAGONPROMO`)
@@ -22,7 +22,7 @@ and voilà! your Aragon AI account is fully activated at generous discount.
 ## 🏷️ Aragon AI Discount Codes
 
 **🔹 Best active verified Aragon AI coupon code:**  
-`**ARAGONPROMO**` – Use this at checkout for an extra **15% off** (works on top of the 20% auto-applied page discount for a total of **35% off**). The deal may offer up to 65% off if you [use this page!](https://www.aragon.ai/pricing?via=gthb)
+`ARAGONPROMO` – Use this at checkout for an extra **15% off** (works on top of the 20% auto-applied page discount for a total of **35% off**). The deal may offer up to 65% off if you [use this page!](https://www.aragon.ai/pricing?via=gthb)
 
 **🔸 Alternative / Backup Coupons:**  
 - `SAVE15`
@@ -34,6 +34,7 @@ and voilà! your Aragon AI account is fully activated at generous discount.
 
 **⚠️ Note:** Coupons expire sson, so grab your deal ASAP!
 
+---
 
 ## ❓ FAQs about Aragon AI Discount
 
