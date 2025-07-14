@@ -6,11 +6,10 @@
 Aragon AI is an AI-powered headshot generator offering a **massive 65% discount** on all plans for new and returning users.
 
 
+## 💡 How to Redeem this Araogn.ai Discount
+To get the deal, you **NEED** to follow these steps:
 
-## 💡 How to Redeem the Discount
-
-1. Go to [this Aragon.ai page](https://www.aragon.ai/pricing?via=gthb)  
-   *(Includes 43% off auto-applied)*
+1. Go to [this Aragon.ai page](https://www.aragon.ai/pricing?via=gthb) *(Includes 43% off auto-applied)*
 2. Select a plan.
 3. Sign up with a new email address.
 4. At checkout, use the extra promo code 'ARAGONPROMO' for extra 15% off
@@ -19,13 +18,11 @@ Aragon AI is an AI-powered headshot generator offering a **massive 65% discount*
 and voilà! your Aragon AI account is fully activated at generous discount.
 
 
----
----
 
 ## 🏷️ Aragon AI Discount Codes
 
 **🔹 Best active verified Aragon AI coupon code:**  
-`ARAGONPROMO` – Use this at checkout for an extra **15% off** (works on top of the 20% auto-applied page discount for a total of **35% off**).
+`**ARAGONPROMO**` – Use this at checkout for an extra **15% off** (works on top of the 20% auto-applied page discount for a total of **35% off**). The deal may offer up to 65% off if you [use this page!](https://www.aragon.ai/pricing?via=gthb)
 
 **🔸 Alternative / Backup Coupons:**  
 - `SAVE15`
@@ -37,9 +34,6 @@ and voilà! your Aragon AI account is fully activated at generous discount.
 
 **⚠️ Note:** Coupons expire sson, so grab your deal ASAP!
 
-
-
----
 
 ## ❓ FAQs about Aragon AI Discount
 
