@@ -32,7 +32,7 @@ and voilà! your Aragon AI account is fully activated at generous discount.
 
 **💡 Pro Tip:** The discount only applies once per account – use it on the **Premium plan** to get the most headshots for your money.
 
-**⚠️ Note:** Coupons expire sson, so grab your deal ASAP!
+**⚠️ Note:** Coupons expire sson, so grab your deal ASAP!!
 
 ---
 ![Aragon AI Promo](https://github.com/ai-deals/aragon-ai-discount-code/blob/main/aragon-ai.jpg?raw=true)
