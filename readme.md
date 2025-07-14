@@ -1,9 +1,9 @@
-# 🔥 Aragon AI Discount Code: 'ARAGONPROMO' – Save 58% Now!
+# 🔥 Aragon AI Discount Code: 'ARAGONPROMO' – Save 65% Now!
 
 [**👉 Click here to access the deal**](https://www.aragon.ai/pricing?via=gthb)  
 (Main promo code: `ARAGONPROMO`)
 
-Aragon AI is an AI-powered headshot generator offering a **massive 58% discount** on all plans for new and returning users.
+Aragon AI is an AI-powered headshot generator offering a **massive 65% discount** on all plans for new and returning users.
 
 
 
@@ -49,7 +49,7 @@ Aragon AI is an AI-powered headshot generator that helps users create profession
 
 ### 🔹 How much can I save with the promo code?
 
-You can save up to **58%** when using the promo code `ARAGONPROMO`, which includes an automatic 43% discount plus an extra 15% off at checkout.
+You can save up to **65%** when using the promo code `ARAGONPROMO`, which includes an automatic 43% discount plus an extra 15% off at checkout.
 
 ### 🔹 Can existing users use this discount?
 
