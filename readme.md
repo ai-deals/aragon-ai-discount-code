@@ -5,7 +5,7 @@
 
 Aragon AI is an AI-powered headshot generator offering a **massive 58% discount** on all plans for new and returning users.
 
----
+
 
 ## 💡 How to Redeem the Discount
 
@@ -17,7 +17,4 @@ Aragon AI is an AI-powered headshot generator offering a **massive 58% discount*
 
 3. **Sign up with a new email address.**
 
-4. **At checkout, use the extra promo code below:**
-
-   ```text
-   RDTPROMO
+4. **At checkout, use the extra promo code below:*
