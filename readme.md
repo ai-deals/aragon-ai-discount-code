@@ -35,6 +35,8 @@ and voilà! your Aragon AI account is fully activated at generous discount.
 **⚠️ Note:** Coupons expire sson, so grab your deal ASAP!
 
 ---
+![Aragon AI Promo](https://github.com/ai-deals/aragon-ai-discount-code/blob/main/aragon-ai.jpg?raw=true)
+
 
 ## ❓ FAQs about Aragon AI Discount
 
